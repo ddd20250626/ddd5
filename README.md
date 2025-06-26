@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://hl458.pages.dev/">黑料社区成人版在线观看</a>
 
-点击访问：<a href="https://hl448.pages.dev/">黑料社</a>
+点击访问：<a href="https://hl448.pages.dev/">黑料社app</a>
 
 点击访问：<a href="https://hl441.pages.dev/">51 黑料社红黑料门</a>
 
@@ -65,4 +65,4 @@ Telegram频道传送门：整合多类型热门 Telegram 频道，覆盖资讯�
 
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ddd20250626/ddd5）</span>
